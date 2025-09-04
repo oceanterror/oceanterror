@@ -1,1 +1,2 @@
-OUTDATED AGAINNNNNNNNN hxh is my "new" hyperfixation. #going back to 2020 with this one
+OUTDATED AGAINNNNNNNNN hxh is my "new" hyperfixation. #goingback to 2020 with this one
+<br>also i am not really active on pt anymore but maybe that will change... :eyes: who knows...
